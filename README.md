@@ -4,3 +4,4 @@ Kak Eunike, Kak Aldi
 Samuel Napit
 
 alexander, nani, nico
+it del
